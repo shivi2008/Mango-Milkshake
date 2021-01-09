@@ -1,1 +1,1 @@
-# Mango-Milkshake
+This recipe is about how to make a Mango Milkshake
